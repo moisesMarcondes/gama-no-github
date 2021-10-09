@@ -1,0 +1,1 @@
+Queria estar fazendo esse curso com a galera.
